@@ -1,1 +1,1 @@
-[![atabook](https://imagetourl.cloud/ww8h0t0g.jpg)](https://yoveski.atabook.org)
+[![atabook](https://imagetourl.cloud/wkw7l56u.jpg)](https://yoveski.atabook.org)
