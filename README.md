@@ -7,5 +7,5 @@
 <p align="center" >────────〢────────
 
 <p align="center">
-  <a href="https://yoveski.atabook.org">[ sign ata! zᙆᶻ ]</a>
+  <a href="https://ajawshutup.atabook.org">[ sign ata! zᙆᶻ ]</a>
 </p>
