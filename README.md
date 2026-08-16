@@ -1,5 +1,12 @@
-<p align="center">
-  <a href="https://yoveski.atabook.org">ˢⁱᵍⁿ ᵃᵗᵃ</a>
-</p>
+<div align="center">
 
-![](https://cdn.phototourl.com/free/2026-08-09-a28c6291-f6a4-4912-9580-045c61c82666.jpg)
+![](https://cdn.phototourl.com/free/2026-08-16-bb742dc6-ed53-48ae-8c58-9e86b1422d5a.png)
+
+![](https://cdn.phototourl.com/free/2026-08-16-609a73c8-e7ea-4c9a-be5d-916046f446cc.png)
+
+<a href="https://yoveski.atabook.org/">𝓐</a>${\textsf{\color{#756D8B}𝐭𝐚𝐛𝐨𝐨𝐤}}$
+      <a href="https://guns.lol/yove">𝓓</a>${\textsf{\color{#B7A197}𝐢𝐬𝐜𝐨𝐫𝐝}}$
+      <a href="https://imsolazytomakethis.straw.page">𝓢</a>${\textsf{\color{#D9A694}𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞}}$
+
+<p align="center">
+<div align="center">
