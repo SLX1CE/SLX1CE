@@ -1,6 +1,9 @@
-$${\textsf{\color{#75A697}░░░░░░░░░░░░░░░░░}}$$
-
 <div align="center">
+
+![](https://komarev.com/ghpvc/?username=SLX1CE&style=flat-square&color=AAB694&label=羽&base=676767676767)
+
+![](https://cdn.phototourl.com/free/2026-08-16-0cf78992-8974-47e7-9663-51a7ef8b58fc.png)
+
 
 ![](https://cdn.phototourl.com/free/2026-08-16-609a73c8-e7ea-4c9a-be5d-916046f446cc.png)
 
