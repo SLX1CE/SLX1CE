@@ -2,16 +2,5 @@
 
 ![](https://komarev.com/ghpvc/?username=SLX1CE&style=flat-square&color=AAB694&label=羽&base=676767676767)
 
-![](https://cdn.phototourl.com/free/2026-08-16-0cf78992-8974-47e7-9663-51a7ef8b58fc.png)
-
-
-![](https://cdn.phototourl.com/free/2026-08-16-609a73c8-e7ea-4c9a-be5d-916046f446cc.png)
-
-<a href="https://yoveski.atabook.org/">𝓐</a>${\textsf{\color{#756D8B}𝐭𝐚𝐛𝐨𝐨𝐤}}$
-      <a href="https://guns.lol/yove">𝓓</a>${\textsf{\color{#B7A197}𝐢𝐬𝐜𝐨𝐫𝐝}}$
-      <a href="https://imsolazytomakethis.straw.page">𝓢</a>${\textsf{\color{#D9A694}𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞}}$
-
-${\textsf{\color{#75A697}░░░░░░░░░░░░░░░░░}}$
-
-<p align="center">
-<div align="center">
+![image](https://www.image2url.com/r2/default/images/1787322869550-558a1510-bd39-403d-afe7-5d0a0c6810b2.webp)
+<a href="https://yoveski.atabook.org/">★</a>
